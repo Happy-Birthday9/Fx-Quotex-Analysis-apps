@@ -1,0 +1,1 @@
+# Fx-Quotex-Analysis-apps
